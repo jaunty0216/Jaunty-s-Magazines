@@ -1,0 +1,1 @@
+# Jaunty-s-Magazines
